@@ -1056,3 +1056,16 @@ If you find CTF.ai useful or interesting:
 ### CTF.ai — Connecting Customers to Farmers
 
 **🌾 Fresh Products • 🤝 Direct Connections • 🤖 Intelligent Agriculture**
+****
+Now it's to showup this website****
+🌐 Live Website
+🚀 Experience CTF.ai Live
+
+“Don't just read about the future of agriculture — experience it.” 🌾✨
+
+👉 Live Demo:
+https://ctf-ai-community-739z.onrender.com/
+
+🌱 CTF.ai — Connecting Customers Directly to Farmers
+
+Explore the platform, discover its features, and experience how technology can bring farmers and customers closer together.
