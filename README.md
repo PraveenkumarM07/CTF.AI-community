@@ -1056,8 +1056,9 @@ If you find CTF.ai useful or interesting:
 ### CTF.ai — Connecting Customers to Farmers
 
 **🌾 Fresh Products • 🤝 Direct Connections • 🤖 Intelligent Agriculture**
-****
-Now it's to showup this website****
+
+**Now it's to showup this website**
+
 🌐 Live Website
 🚀 Experience CTF.ai Live
 
